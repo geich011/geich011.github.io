@@ -1,6 +1,6 @@
 ## Geich011's Homepage
 
-yeet
+yeet.
 
 ### Markdown
 
